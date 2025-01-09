@@ -1,0 +1,1 @@
+Motu is mainly the black sheep of the duo, unintentionally creating problems due to his incompetency while Patlu is the smart one that always tries to stop him.Motu is mainly the black sheep of the duo, unintentionally creating problems due to his incompetency while Patlu is the smart one that always tries to stop him.
